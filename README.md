@@ -24,15 +24,15 @@ dont ask if you need c+h or int ! feel free to do, id love that •̀.̫•́✧
 commonly ! proshipper, racist, homophobic, some problematics, yeah
 </p>
 
-<h2 align="center">fandoms and kin list !</h1>
+<h3 align="center">fandoms and kin list !</h3>
 
-<h2 align="center">fandoms most active !</h2>
+<h4 align="center">fandoms most active !</h4>
 final fantasy / arknights / my hero academia / the freak circus / creepypasta / silent hill / resident evil / persona
 
-<h2 align="center">kin characters</h2>
+<h4 align="center">kin characters</h4>
 serah ffxii / aerith ffvii / lain sel / kangel, ame nso / dabi mha / mei mha / mostima ark / specter ark / hinako shf / makoto p3 / futaba p5 / aigis p3
 
-<h5 alighn="center">oh yeah im also a hawks, reno, noctis, joker, ryuji great simper</h5>
+<h3 alighn="center">oh yeah im also a hawks, reno, noctis, joker, ryuji great simper</h3>
 
 <p align="center">
   <img src="https://ztgd.com/wp-content/uploads/2012/02/finalfantasy13_2_2.jpg" width="300">
@@ -43,7 +43,7 @@ you can send gimmicks on my strawpage, tho i barely check it</3 <br>
 just dont send me something weird, okay?
 </p>
 
-<h2 align="center">peace off !</h1>
+<h3 align="center">peace off !</h3>
 
 <p align="center">
   <img src="https://static.vecteezy.com/system/resources/previews/060/355/768/non_2x/angelic-wings-collection-feathers-of-birds-white-on-black-background-cut-out-transparent-png.png" width="300">
