@@ -26,7 +26,7 @@ commonly ! proshipper, racist, homophobic, some problematics, yeah
 
 <h2 align="center">fandoms and kin list !</h1>
 
-<h2 align="center">fandoms and kin list !</h2>
+<h2 align="center">fandoms most active !</h2>
 final fantasy / arknights / my hero academia / the freak circus / creepypasta / silent hill / resident evil / persona
 
 <h2 align="center">kin characters</h2>
