@@ -30,7 +30,7 @@ final fantasy / arknights / my hero academia / the freak circus / creepypasta / 
 
 <h3 align="center">kin characters</h3>
 <p align="center">
-serah ffxii / aerith ffvii / lain sel / kangel, ame nso / dabi mha / mei mha / mostima ark / specter ark / hinako shf / makoto p3 / futaba p5 / aigis p3 / grace re9 / randal renfren / nyon ranfren
+serah ffxii / aerith ffvii / lain sel / kangel, ame nso / dabi mha / mei mha / mostima ark / specter ark / hinako shf / makoto p3 / futaba p5 / aigis p3 / grace re9 / randal renfren / nyon ranfren / joseph idv / grace idv
 </p>
 
 <p align="center">
