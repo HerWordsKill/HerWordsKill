@@ -1,7 +1,7 @@
 <h1 align="center">lilili.ililil [骨針青眼] </h1>
 
 <p align="center">
-  <img src="https://64.media.tumblr.com/198452134799af8d1993438a86fd5ca9/5663e711a3f64bcc-1d/s540x810/5f3571f2d42da00f495c20c75fcce074010ee1cc.pnj">
+  <img src="https://64.media.tumblr.com/187293390d466fbb074d8ad5000477d7/15e0d70fbe70edad-52/s640x960/0cd4ce15245e552da043c2d349d48f3bb06e8c8a.png" width=900>
 </p>
 
 <p align="center">
@@ -14,13 +14,11 @@
 </p>
 
 <p align="center">
-  <img src="https://64.media.tumblr.com/d2a231cb3d52e8106162b05e9f5aecc1/a518d38f27f0dd93-a0/s540x810/fa76a25b01abfe5615cf8007f221f7aff6f9516e.pnj" width=200>
+  <img src="https://64.media.tumblr.com/d2a231cb3d52e8106162b05e9f5aecc1/a518d38f27f0dd93-a0/s540x810/fa76a25b01abfe5615cf8007f221f7aff6f9516e.pnj" width=150>
 </p>
 
-<h3 align="center">DNI list !</h1>
-
 <p align="center">
-commonly ! proshipper, racist, homophobic, some problematics, yeah
+  <a href="https://lilili-ililil.straw.page">click for strawpage</a> 
 </p>
 
 <h3 align="center">fandoms most active !</h3>
@@ -30,7 +28,7 @@ final fantasy / arknights / my hero academia / the freak circus / creepypasta / 
 
 <h3 align="center">kin characters</h3>
 <p align="center">
-serah ffxii / aerith ffvii / lain sel / kangel, ame nso / dabi mha / mei mha / mostima ark / specter ark / hinako shf / makoto p3 / futaba p5 / aigis p3 / grace re9 / randal renfren / nyon ranfren / joseph idv / grace idv
+mostima ark / specter ark / grace idv / joseph idv / michiko idv / serah ffxii / aerith ffvii / lain sel / kangel, ame nso / dabi mha / mei mha / hinako shf / makoto p3 / aigis p3 / grace re9
 </p>
 
 <p align="center">
