@@ -23,12 +23,12 @@
 
 <h3 align="center">fandoms most active !</h3>
 <p align="center">
-final fantasy / arknights / my hero academia / the freak circus / creepypasta / silent hill / resident evil / persona / dead by daylight / identity v
+final fantasy / arknights / my hero academia / the freak circus / creepypasta / silent hill / resident evil / persona / identity v
 </p>
 
 <h3 align="center">kin characters</h3>
 <p align="center">
-mostima ark / specter ark / grace idv / joseph idv / michiko idv / serah ffxii / aerith ffvii / lain sel / kangel, ame nso / dabi mha / mei mha / hinako shf / makoto p3 / aigis p3 / grace re9
+mostima ark / specter ark / grace idv / joseph idv / serah ffxii / aerith ffvii / lain sel / kangel, ame nso / dabi mha / mei mha / hinako shf / futaba p5 / makoto p3 / aigis p3
 </p>
 
 <p align="center">
