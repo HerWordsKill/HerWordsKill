@@ -23,7 +23,7 @@
 
 <h3 align="center">fandoms most active !</h3>
 <p align="center">
-final fantasy / arknights / my hero academia / the freak circus / creepypasta / silent hill / resident evil / persona / identity v
+final fantasy / arknights / my hero academia / identity v / creepypasta / silent hill / resident evil / persona
 </p>
 
 <h3 align="center">kin characters</h3>
