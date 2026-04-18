@@ -1,11 +1,11 @@
-<h1 align="center">lilili.ililil [骨針青眼] </h1>
+<h1 align="center">ililillilili </h1>
 
 <p align="center">
   <img src="https://64.media.tumblr.com/187293390d466fbb074d8ad5000477d7/15e0d70fbe70edad-52/s640x960/0cd4ce15245e552da043c2d349d48f3bb06e8c8a.png" width=900>
 </p>
 
 <p align="center">
-  lili , lou , laine, or check more on my pronouns page .ᐟ •̀.̫•́✧ <br>
+  lou , lili , laine, or check more on my pronouns page .ᐟ •̀.̫•́✧ <br>
 <img src="https://64.media.tumblr.com/9adfb783125c28e9694cb7e7344eded3/cbe6cec397c53a4d-c7/s75x75_c1/38fd1abd6f075196a572ff4e8e2466d220ffa5fe.gifv"> she / he <img src="https://64.media.tumblr.com/2969aba6dbd5859f595882f26e933b08/cbe6cec397c53a4d-f6/s75x75_c1/cce154bcaafc55dd69db420e8c370e94959d0119.gifv">
 <p>
 
