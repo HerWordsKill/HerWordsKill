@@ -24,7 +24,7 @@
 </p>
 
 <p align="center">
-  <a href="https://lilili-ililil.straw.page">sign strawpage</a> <img src="https://64.media.tumblr.com/f5096008900e98942f84f85d44653dea/0df8fb8a64b2deec-21/s75x75_c1/fd50f22d3719badac6f0ebb9c27ebcafc0efe11d.gifv"> <a href="https://louruiner.atabook.org">sign ata</a> <img src="https://64.media.tumblr.com/f5096008900e98942f84f85d44653dea/0df8fb8a64b2deec-21/s75x75_c1/fd50f22d3719badac6f0ebb9c27ebcafc0efe11d.gifv"> <a href="https://pronouns.cc/@ilililpiano">read pronouns page</a> <img src="https://64.media.tumblr.com/f5096008900e98942f84f85d44653dea/0df8fb8a64b2deec-21/s75x75_c1/fd50f22d3719badac6f0ebb9c27ebcafc0efe11d.gifv"> <a href="https://spacehey.com/louruiner033">add on spacehey</a>
+  <a href="https://lilili-ililil.straw.page">sign strawpage</a> <img src="https://64.media.tumblr.com/f5096008900e98942f84f85d44653dea/0df8fb8a64b2deec-21/s75x75_c1/fd50f22d3719badac6f0ebb9c27ebcafc0efe11d.gifv"> <a href="https://louruiner.atabook.org">sign ata</a> <img src="https://64.media.tumblr.com/f5096008900e98942f84f85d44653dea/0df8fb8a64b2deec-21/s75x75_c1/fd50f22d3719badac6f0ebb9c27ebcafc0efe11d.gifv"> <a href="https://pronouns.cc/@ilililpiano">read pronouns page</a>
   
 </p>
 
