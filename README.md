@@ -1,11 +1,11 @@
 <h1 align="center">るぅち青猫天使</h1>
 
 <p align="center">
-  <img src="https://pbs.twimg.com/media/HGQtlFgbgAAxYNu?format=png&name=900x900">
+  <img src="https://pbs.twimg.com/media/HGQtlGlaYAATi-F?format=png&name=900x900">
 </p>
 
 <p align="center">
-  lou , lili , laine, or check more on my pronouns page .ᐟ •̀.̫•́✧ <br>
+  lou , laine or check more on my pronouns page .ᐟ •̀.̫•́✧ <br>
 <img src="https://64.media.tumblr.com/9adfb783125c28e9694cb7e7344eded3/cbe6cec397c53a4d-c7/s75x75_c1/38fd1abd6f075196a572ff4e8e2466d220ffa5fe.gifv"> she / he <img src="https://64.media.tumblr.com/2969aba6dbd5859f595882f26e933b08/cbe6cec397c53a4d-f6/s75x75_c1/cce154bcaafc55dd69db420e8c370e94959d0119.gifv">
 <p>
 
@@ -13,13 +13,9 @@
   <img src="https://64.media.tumblr.com/c7090f7ca5639f0ceaee9c032b524fc0/c3cfc3267c678853-bb/s2048x3072/0722068365d7e629a998365e1392f1a16eaae6ec.pnj">
 </p>
 
-<p align="center">
-  <img src="https://64.media.tumblr.com/f15753f31f590fbb72f827ebab040899/e76c8f5ba9501b5f-7d/s1280x1920/cb2912414bd26da7c6ab5dcedc6e6501cc7a30d2.pnj" width=80> <img src="https://64.media.tumblr.com/29df840bb1d497fd45f6ba6be80c7e2e/70b17c1cf013eff7-95/s400x600/91d442d31dc16104f38ed08492cbafc1850a388a.pnj" width=100> <img src="https://64.media.tumblr.com/c39d040003dbe289b8c60719a89d1a16/e76c8f5ba9501b5f-cf/s1280x1920/037c868574103d7609a565111c945c98d06905fc.pnj" width=80>
-</p>
-
-<p align="center">
+  <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31y2ruti6fpbhq57ya7ikuk4e2pa&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=0000ff&bar_color_cover=false">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31y2ruti6fpbhq57ya7ikuk4e2pa&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=false&mode=dark">
   </a>
 </p>
 
@@ -29,8 +25,5 @@
 </p>
 
 <p align="center">
-  <img src="https://i.pinimg.com/originals/e2/15/16/e21516ef3814c7cce41461558a41eb10.gif" width="120"> <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/106a3d8f-61d4-4534-8cd6-346610a65b1a/df0f1g8-d8387a41-887b-48f9-b90a-26e1f4aab5aa.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiIvZi8xMDZhM2Q4Zi02MWQ0LTQ1MzQtOGNkNi0zNDY2MTBhNjViMWEvZGYwZjFnOC1kODM4N2E0MS04ODdiLTQ4ZjktYjkwYS0yNmUxZjRhYWI1YWEuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.mugk2xGLhDX1nmk9DYm35MPOTx39QmmMCR7h0y3k39E" width=70> <img src="https://img1.picmix.com/output/stamp/normal/6/0/6/1/2631606_8581f.gif" width=60> <img src="https://64.media.tumblr.com/c3bbf753946e916a25d1c5b783c11282/tumblr_ogy6kqG2h11scncwdo1_540.gif" width=130> <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/e57c0ca5-c162-43e7-b0dc-40f215c30321/dkt1ezr-e9ce3264-b2b9-44ad-8b05-3ccce3773274.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiIvZi9lNTdjMGNhNS1jMTYyLTQzZTctYjBkYy00MGYyMTVjMzAzMjEvZGt0MWV6ci1lOWNlMzI2NC1iMmI5LTQ0YWQtOGIwNS0zY2NjZTM3NzMyNzQuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.4Pp5VAlE3QgciNtIDltJsiGnnYmfu4yDvJqE4zqnke0" width=90> <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/e57c0ca5-c162-43e7-b0dc-40f215c30321/dkxznvc-efc473a4-95d9-481c-903c-ef69254c79ae.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiIvZi9lNTdjMGNhNS1jMTYyLTQzZTctYjBkYy00MGYyMTVjMzAzMjEvZGt4em52Yy1lZmM0NzNhNC05NWQ5LTQ4MWMtOTAzYy1lZjY5MjU0Yzc5YWUuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.AO8CGa6jnPs7yUTktuIFdpkoJVfxCS3y8FFOew1AWFI" width=90>
-</p>
-
-<h3 align="center">peace off ! </h3>
+  <img src="https://static.wikia.nocookie.net/finalfantasy/images/2/25/FFXV_logo.png/revision/latest?cb=20160920113641" width=250> <img src="https://fyre.cdn.sewest.net/ffvii-hub/67ed9e3ff51210ac43297f91/ff7-remake-logo-61552605268503034.png" width=250> <img src="https://cache-na.finalfantasy.com/assets/web/title/logo_ff13_en-8d1618f81ddac2500f5e245293ce0f7864233e88eb505d0468828fb8703136f5.png" width=250> <img src="https://static.wikia.nocookie.net/mrfz/images/3/30/Arknights_logo.png/revision/latest?cb=20220321013018" width=250> <img src="https://upload.wikimedia.org/wikipedia/commons/c/cc/Persona_5_logo.png?utm_source=commons.wikimedia.org&utm_campaign=index&utm_content=original" width=200>
 <img src="https://64.media.tumblr.com/49e38ceeb9ee2bb722a54bea18cdd1d9/13b15821a9a5bfce-8f/s2048x3072/367d7a1179479526974ab393e58889bb2ef34855.pnj">
