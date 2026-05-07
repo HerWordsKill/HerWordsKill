@@ -1,11 +1,11 @@
-<h1 align="center">るぅち青猫天使</h1>
+<h1 align="center">lili-chouchou</h1>
 
 <p align="center">
   <img src="https://pbs.twimg.com/media/HGQtlGlaYAATi-F?format=png&name=900x900">
 </p>
 
 <p align="center">
-  lou , laine or check more on my pronouns page .ᐟ •̀.̫•́✧ <br>
+  lou , lili , laine or check more on my pronouns page .ᐟ •̀.̫•́✧ <br>
 <img src="https://64.media.tumblr.com/9adfb783125c28e9694cb7e7344eded3/cbe6cec397c53a4d-c7/s75x75_c1/38fd1abd6f075196a572ff4e8e2466d220ffa5fe.gifv"> she / he <img src="https://64.media.tumblr.com/2969aba6dbd5859f595882f26e933b08/cbe6cec397c53a4d-f6/s75x75_c1/cce154bcaafc55dd69db420e8c370e94959d0119.gifv">
 <p>
 
