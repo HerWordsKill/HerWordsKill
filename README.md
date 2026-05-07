@@ -13,12 +13,6 @@
   <img src="https://64.media.tumblr.com/c7090f7ca5639f0ceaee9c032b524fc0/c3cfc3267c678853-bb/s2048x3072/0722068365d7e629a998365e1392f1a16eaae6ec.pnj">
 </p>
 
-  <p align="center">
-  <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31y2ruti6fpbhq57ya7ikuk4e2pa&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=false&mode=dark">
-  </a>
-</p>
-
 <p align="center">
   <a href="https://lilili-ililil.straw.page">sign strawpage</a> <img src="https://64.media.tumblr.com/f5096008900e98942f84f85d44653dea/0df8fb8a64b2deec-21/s75x75_c1/fd50f22d3719badac6f0ebb9c27ebcafc0efe11d.gifv"> <a href="https://louruiner.atabook.org">sign ata</a> <img src="https://64.media.tumblr.com/f5096008900e98942f84f85d44653dea/0df8fb8a64b2deec-21/s75x75_c1/fd50f22d3719badac6f0ebb9c27ebcafc0efe11d.gifv"> <a href="https://pronouns.cc/@ilililpiano">read pronouns page</a>
   
