@@ -1,9 +1,10 @@
 <h1 align="center">lili-chouchou</h1>
 
 <p align="center">
-  <img src="https://pbs.twimg.com/media/HGQtlGlaYAATi-F?format=png&name=900x900">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31y2ruti6fpbhq57ya7ikuk4e2pa&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=false&mode=light">
+  </a>
 </p>
-
 <p align="center">
   lou , lili , laine or check more on my pronouns page .ᐟ •̀.̫•́✧ <br>
 <img src="https://64.media.tumblr.com/9adfb783125c28e9694cb7e7344eded3/cbe6cec397c53a4d-c7/s75x75_c1/38fd1abd6f075196a572ff4e8e2466d220ffa5fe.gifv"> she / he <img src="https://64.media.tumblr.com/2969aba6dbd5859f595882f26e933b08/cbe6cec397c53a4d-f6/s75x75_c1/cce154bcaafc55dd69db420e8c370e94959d0119.gifv">
