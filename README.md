@@ -1,9 +1,7 @@
 <h1 align="center">lili-chouchou</h1>
 
 <p align="center">
-  <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31y2ruti6fpbhq57ya7ikuk4e2pa&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=false&mode=light">
-  </a>
+<img src="https://gamerbraves.sgp1.cdn.digitaloceanspaces.com/2023/11/Arknights-Lone-Trail-Banner.jpg">
 </p>
 <p align="center">
   lou , lili , laine or check more on my pronouns page .ᐟ •̀.̫•́✧ <br>
