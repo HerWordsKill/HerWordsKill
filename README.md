@@ -1,4 +1,4 @@
-<h1 align="center">𝗹𝗶𝗹𝗶-𝗰𝗵𝗼𝘂𝗰𝗵𝗼𝘂</h1>
+<h1 align="center">𝑳𝒐𝒗𝒆 𝑶𝒏 𝑻𝒉𝒆 𝑪𝒂𝒕𝒘𝒂𝒍𝒌 - 𝑯𝒆𝒓 𝑾𝒐𝒓𝒅𝒔 𝑲𝒊𝒍𝒍</h1>
 
 <p align="center">
   <img src="https://64.media.tumblr.com/39b36a0e3fb05410ae02386246cff7de/789eed8d2d23d817-1b/s2048x3072/5f04cfc4366283c89285abe258016419ea932a2a.pnj">
@@ -7,9 +7,6 @@
 
 <h3 align="center"> ‘ 𝓢𝓱𝓮 𝓼𝓪𝓲𝓭 “𝓔𝓪𝓻𝓵𝔂 𝓽𝓸𝓶𝓸𝓻𝓻𝓸𝔀, 𝓘 𝔀𝓲𝓵𝓵 𝓬𝓪𝓵𝓵 𝓯𝓸𝓻 𝔂𝓸𝓾” <br>
 𝓘 𝓼𝓪𝓲𝓭 “𝓝𝓸, 𝓶𝔂 𝓭𝓮𝓪𝓻, 𝓘 𝔀𝓸𝓷'𝓽 𝔀𝓪𝓲𝓽 𝓯𝓸𝓻 𝔂𝓸𝓾” ’ </h3> <br>
-<p align="center">
-  ᴸᵒᵛᵉ ᴼⁿ ᵀʰᵉ ᶜᵃᵗʷᵃˡᵏ ⁻ ᴴᵉʳ ᵂᵒʳᵈˢ ᴷⁱˡˡ
-</p>
 
 <p align="center">
   <img src="https://64.media.tumblr.com/c7ddace4a2f6ad6ebef94660560170a3/e8c3a4b54383450e-71/s2048x3072/1564ff81c7d38d1a0af7f4fdd61771c60007c6e4.pnj">
