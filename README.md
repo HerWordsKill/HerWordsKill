@@ -1,22 +1,27 @@
-<h1 align="center">lili-chouchou</h1>
+<h1 align="center">𝗹𝗶𝗹𝗶-𝗰𝗵𝗼𝘂𝗰𝗵𝗼𝘂</h1>
 
 <p align="center">
-<img src="https://gamerbraves.sgp1.cdn.digitaloceanspaces.com/2023/11/Arknights-Lone-Trail-Banner.jpg">
-</p>
-<p align="center">
-  lou , lili , laine or check more on my pronouns page .ᐟ •̀.̫•́✧ <br>
-<img src="https://64.media.tumblr.com/9adfb783125c28e9694cb7e7344eded3/cbe6cec397c53a4d-c7/s75x75_c1/38fd1abd6f075196a572ff4e8e2466d220ffa5fe.gifv"> she / he <img src="https://64.media.tumblr.com/2969aba6dbd5859f595882f26e933b08/cbe6cec397c53a4d-f6/s75x75_c1/cce154bcaafc55dd69db420e8c370e94959d0119.gifv">
-<p>
-
-<p align="center">
-  <img src="https://64.media.tumblr.com/c7090f7ca5639f0ceaee9c032b524fc0/c3cfc3267c678853-bb/s2048x3072/0722068365d7e629a998365e1392f1a16eaae6ec.pnj">
+  <img src="https://64.media.tumblr.com/39b36a0e3fb05410ae02386246cff7de/789eed8d2d23d817-1b/s2048x3072/5f04cfc4366283c89285abe258016419ea932a2a.pnj">
+<img src="https://64.media.tumblr.com/tumblr_m7aj7c3HMh1qf5q29o1_500.gif" width="900">
 </p>
 
+<h3 align="center"> ” 𝓦𝓱𝓮𝓷 𝓘 𝓯𝓪𝓵𝓵 𝓪𝓼𝓵𝓮𝓮𝓹 𝓘 𝓯𝓮𝓮𝓵 𝔂𝓸𝓾 𝔀𝓲𝓽𝓱 𝓶𝓮 <br>
+'𝓣𝓲𝓵𝓵 𝓘 𝓯𝓪𝓵𝓵 𝓪𝓼𝓵𝓮𝓮𝓹 𝓪𝓷𝓭 𝔂𝓸𝓾 𝓪𝓻𝓮 𝔀𝓲𝓽𝓱 𝓶𝓮 ” </h3>
+
 <p align="center">
-  <a href="https://lilili-ililil.straw.page">sign strawpage</a> <img src="https://64.media.tumblr.com/f5096008900e98942f84f85d44653dea/0df8fb8a64b2deec-21/s75x75_c1/fd50f22d3719badac6f0ebb9c27ebcafc0efe11d.gifv"> <a href="https://louruiner.atabook.org">sign ata</a> <img src="https://64.media.tumblr.com/f5096008900e98942f84f85d44653dea/0df8fb8a64b2deec-21/s75x75_c1/fd50f22d3719badac6f0ebb9c27ebcafc0efe11d.gifv"> <a href="https://pronouns.cc/@ilililpiano">read pronouns page</a>
+  <img src="https://64.media.tumblr.com/c7ddace4a2f6ad6ebef94660560170a3/e8c3a4b54383450e-71/s2048x3072/1564ff81c7d38d1a0af7f4fdd61771c60007c6e4.pnj">
+</p>
+
+<p align="center">
+  lou , lili , laine .ᐟ ✧ <br>
+<img src="https://64.media.tumblr.com/9adfb783125c28e9694cb7e7344eded3/cbe6cec397c53a4d-c7/s75x75_c1/38fd1abd6f075196a572ff4e8e2466d220ffa5fe.gifv"> she / he <img src="https://64.media.tumblr.com/2969aba6dbd5859f595882f26e933b08/cbe6cec397c53a4d-f6/s75x75_c1/cce154bcaafc55dd69db420e8c370e94959d0119.gifv"> <br>
+  <br>
+ ↬ final fantasy & arknights ↫ <br>
+  c+h freely any fandoms <br>
+  <br>
+  <a href="https://lilili-ililil.straw.page">𝒔𝒕𝒓𝒂𝒘𝒑𝒂𝒈𝒆</a> ❀ <a href="https://louruiner.atabook.org">𝒂𝒕𝒂𝒃𝒐𝒐𝒌</a> ❀ <a href="https://pronouns.cc/@ilililpiano">𝒑𝒓𝒐𝒏𝒐𝒖𝒏𝒔 𝒑𝒂𝒈𝒆</a>
   
 </p>
 
 <p align="center">
-  <img src="https://static.wikia.nocookie.net/finalfantasy/images/2/25/FFXV_logo.png/revision/latest?cb=20160920113641" width=150> <img src="https://fyre.cdn.sewest.net/ffvii-hub/67ed9e3ff51210ac43297f91/ff7-remake-logo-61552605268503034.png" width=150> <img src="https://cache-na.finalfantasy.com/assets/web/title/logo_ff13_en-8d1618f81ddac2500f5e245293ce0f7864233e88eb505d0468828fb8703136f5.png" width=150> <img src="https://static.wikia.nocookie.net/mrfz/images/3/30/Arknights_logo.png/revision/latest?cb=20220321013018" width=150> 
-<img src="https://64.media.tumblr.com/49e38ceeb9ee2bb722a54bea18cdd1d9/13b15821a9a5bfce-8f/s2048x3072/367d7a1179479526974ab393e58889bb2ef34855.pnj">
+<img src="https://64.media.tumblr.com/140c225d93f8031c415a6730a450fabb/a1991c2ceb59554c-ff/s2048x3072/71f24cead9fc82dd8e84c710b2ba3a865334effb.pnj">
