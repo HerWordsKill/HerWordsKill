@@ -20,7 +20,7 @@
  ↬ final fantasy & arknights ↫ <br>
   c+h freely any fandoms <br>
   <br>
-  <a href="https://lilili-ililil.straw.page">𝒔𝒕𝒓𝒂𝒘𝒑𝒂𝒈𝒆</a> ❀ <a href="https://louruiner.atabook.org">𝒂𝒕𝒂𝒃𝒐𝒐𝒌</a> ❀ <a href="https://pronouns.cc/@ilililpiano">𝒑𝒓𝒐𝒏𝒐𝒖𝒏𝒔 𝒑𝒂𝒈𝒆</a>
+  <a href="https://lilili-ililil.straw.page">𝒔𝒕𝒓𝒂𝒘𝒑𝒂𝒈𝒆</a> ✾ <a href="https://louruiner.atabook.org">𝒂𝒕𝒂𝒃𝒐𝒐𝒌</a> ✾ <a href="https://pronouns.cc/@ilililpiano">𝒑𝒓𝒐𝒏𝒐𝒖𝒏𝒔 𝒑𝒂𝒈𝒆</a>
   <br>
 </p>
 
