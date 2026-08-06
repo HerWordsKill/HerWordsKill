@@ -20,9 +20,10 @@
  ↬ final fantasy & arknights ↫ <br>
   c+h freely any fandoms <br>
   <br>
-  <a href="https://lilili-ililil.straw.page">𝒔𝒕𝒓𝒂𝒘𝒑𝒂𝒈𝒆</a> ✾ <a href="https://louruiner.atabook.org">𝒂𝒕𝒂𝒃𝒐𝒐𝒌</a> ✾ <a href="https://pronouns.cc/@ilililpiano">𝒑𝒓𝒐𝒏𝒐𝒖𝒏𝒔 𝒑𝒂𝒈𝒆</a>
+  <a href="https://lilili-ililil.straw.page">𝒔𝒕𝒓𝒂𝒘𝒑𝒂𝒈𝒆</a> ✾ <a href="https://louruiner.atabook.org">𝒂𝒕𝒂𝒃𝒐𝒐𝒌</a> ✾ <a href="https://pronouns.cc/@ilililpiano">𝒑𝒓𝒐𝒏𝒐𝒖𝒏𝒔 𝒑𝒂𝒈𝒆</a> <br>
   <br>
-</p>
+  <sub> <sup> <a href="https://github.com/title-town">title-town</a> & <a href="https://github.com/pt-walk-of-fame">pt-walk-of-fame</a> pony town's Aerith Gainsborough </sub> </sup>
+</p> 
 
 <p align="center">
 <img src="https://64.media.tumblr.com/140c225d93f8031c415a6730a450fabb/a1991c2ceb59554c-ff/s2048x3072/71f24cead9fc82dd8e84c710b2ba3a865334effb.pnj">
