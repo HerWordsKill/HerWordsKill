@@ -3,7 +3,7 @@
   <img src="https://pbs.twimg.com/media/HUmaz2RaIAA_geH?format=png&name=900x900" width=600> <br>
   <img src="https://pbs.twimg.com/media/HUmaz2QasAANscU?format=png&name=900x900" width=300> <img src="https://pbs.twimg.com/media/HUmowO0bsAAzUsD?format=png&name=900x900" width=500> <br>
   <br>
-  <img src="https://64.media.tumblr.com/3a4e20a60af7f7dc0afdbeb8d02d97a4/922dd50f16f9fc88-22/s400x600/e09f4a67754cc209d2c98be745ec951dd7d5a0ac.pnj">
+  <img src="https://64.media.tumblr.com/3a4e20a60af7f7dc0afdbeb8d02d97a4/922dd50f16f9fc88-22/s400x600/e09f4a67754cc209d2c98be745ec951dd7d5a0ac.pnj" width=200>
   <a href="https://lilili-ililil.straw.page">
     <img src="https://pbs.twimg.com/media/HUmbAIGbYAAArjA?format=png&name=900x900" width=150 alt="sp button" />
   <a href="https://louruiner.atabook.org">
