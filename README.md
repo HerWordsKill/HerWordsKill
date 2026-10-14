@@ -21,7 +21,6 @@
     <br>
   <sub> <a href="https://github.com/title-town">title-town</a> & <a href="https://github.com/pt-walk-of-fame">pt-walk-of-fame</a> pony town's Aerith Gainsborough </sub> <br>
   <sup>dividers by "@ animatedglittergraphics-n-more" on tumblr :D</sup> <br>
-  <img src="https://pbs.twimg.com/media/HUmbFAoaIAAm3-V?format=png&name=900x900"> <br>
 </p> 
 
 <p align="center">
