@@ -1,28 +1,28 @@
-<h1 align="center">𝑳𝒐𝒗𝒆 𝑶𝒏 𝑻𝒉𝒆 𝑪𝒂𝒕𝒘𝒂𝒍𝒌 - 𝑯𝒆𝒓 𝑾𝒐𝒓𝒅𝒔 𝑲𝒊𝒍𝒍</h1>
-
 <p align="center">
-  <img src="https://64.media.tumblr.com/39b36a0e3fb05410ae02386246cff7de/789eed8d2d23d817-1b/s2048x3072/5f04cfc4366283c89285abe258016419ea932a2a.pnj">
-<img src="https://64.media.tumblr.com/tumblr_m7aj7c3HMh1qf5q29o1_500.gif" width="900">
-</p>
-
-<h3 align="center"> ‘ 𝓢𝓱𝓮 𝓼𝓪𝓲𝓭 “𝓔𝓪𝓻𝓵𝔂 𝓽𝓸𝓶𝓸𝓻𝓻𝓸𝔀, 𝓘 𝔀𝓲𝓵𝓵 𝓬𝓪𝓵𝓵 𝓯𝓸𝓻 𝔂𝓸𝓾” <br>
-𝓘 𝓼𝓪𝓲𝓭 “𝓝𝓸, 𝓶𝔂 𝓭𝓮𝓪𝓻, 𝓘 𝔀𝓸𝓷'𝓽 𝔀𝓪𝓲𝓽 𝓯𝓸𝓻 𝔂𝓸𝓾” ’ </h3> <br>
-
-<p align="center">
-  <img src="https://64.media.tumblr.com/c7ddace4a2f6ad6ebef94660560170a3/e8c3a4b54383450e-71/s2048x3072/1564ff81c7d38d1a0af7f4fdd61771c60007c6e4.pnj">
-</p>
-
-<p align="center">
+  <img src="https://64.media.tumblr.com/4d4d89a81b688159026ac2d4a8c08399/6542068533dc75dc-8e/s500x750/306f8c05502d348f5aaae1b884dddf35b6e9598a.gifv" width=900> <br>
+  <img src="https://pbs.twimg.com/media/HUmaz2RaIAA_geH?format=png&name=900x900" width=600> <br>
+  <img src="https://pbs.twimg.com/media/HUmaz2QasAANscU?format=png&name=900x900" width=300> <img src="https://pbs.twimg.com/media/HUmowO0bsAAzUsD?format=png&name=900x900" width=500> <br>
   <br>
-  lou , lili .ᐟ ✧ <br>
-<img src="https://64.media.tumblr.com/9adfb783125c28e9694cb7e7344eded3/cbe6cec397c53a4d-c7/s75x75_c1/38fd1abd6f075196a572ff4e8e2466d220ffa5fe.gifv"> final fantasy & arknights <img src="https://64.media.tumblr.com/2969aba6dbd5859f595882f26e933b08/cbe6cec397c53a4d-f6/s75x75_c1/cce154bcaafc55dd69db420e8c370e94959d0119.gifv"> <br>
+  <img src="https://64.media.tumblr.com/3a4e20a60af7f7dc0afdbeb8d02d97a4/922dd50f16f9fc88-22/s400x600/e09f4a67754cc209d2c98be745ec951dd7d5a0ac.pnj">
+  <a href="https://lilili-ililil.straw.page">
+    <img src="https://pbs.twimg.com/media/HUmbAIGbYAAArjA?format=png&name=900x900" width=150 alt="sp button" />
+  <a href="https://louruiner.atabook.org">
+    <img src="https://pbs.twimg.com/media/HUmbAICbIAAety8?format=png&name=900x900" width=150 alt="ata button" />
+  <a href="https://pronouns.cc/@ilililpiano">
+    <img src="https://pbs.twimg.com/media/HUmbAHybEAESjAX?format=png&name=900x900" width=150 alt="prns button" />
   <br>
- ↬ c+h freely , any fandoms ↫ <br>
-  <br>
-  <a href="https://lilili-ililil.straw.page">𝒔𝒕𝒓𝒂𝒘𝒑𝒂𝒈𝒆</a> ✾ <a href="https://louruiner.atabook.org">𝒂𝒕𝒂𝒃𝒐𝒐𝒌</a> ✾ <a href="https://pronouns.cc/@ilililpiano">𝒑𝒓𝒐𝒏𝒐𝒖𝒏𝒔 𝒑𝒂𝒈𝒆</a> <br>
-  <br>
-  <sub> <a href="https://github.com/title-town">title-town</a> & <a href="https://github.com/pt-walk-of-fame">pt-walk-of-fame</a> pony town's Aerith Gainsborough </sub>
+  <img src="https://pbs.twimg.com/media/HUmaz3RaIAAHPXr?format=png&name=900x900" width=500> <br>
+  <img src="https://64.media.tumblr.com/6ee3e46fa270289e76b6be53e4aba787/09fe12a80bbf1fd7-3b/s100x200/8a4e44e9f2cbdb1926068ec1e3ce435945214ae8.pnj" width=100>
+  <img src="https://64.media.tumblr.com/61dcb359252cee5fe22636112f5b1239/cb3cdd609f4b887c-11/s100x200/b7a8da0cb31bdce5672b78c43e99321827d51aad.pnj" width=100>
+    <img src="https://64.media.tumblr.com/40b8dd3c17ccc3777267674ba60db2fa/cb3cdd609f4b887c-3a/s250x400/8b78cc2f1183b0332c0fbbdf2bfbd91bbc1398a3.gifv" width=100>
+    <img src="https://64.media.tumblr.com/6a9e6934e70c6c826a8117c19d2e325e/cb3cdd609f4b887c-69/s100x200/96de432b4edb5ee3396f6a2a8a756b2944abc5b7.pnj" width=100>
+    <img src="https://64.media.tumblr.com/8b5b8e3f1d556882005e4b6e2f4edbbd/cb3cdd609f4b887c-5d/s250x400/c1b9f9c1a016713f703799484d0297cf58688b61.gifv" width=100>
+    <img src="https://64.media.tumblr.com/c8c7c5b7caee57972cbc4e30736a516a/cb3cdd609f4b887c-88/s100x200/b10a5531a9e8184e5de8cbe2786f5b1fd0aa96c2.gifv" width=100>
+    <br>
+  <sub> <a href="https://github.com/title-town">title-town</a> & <a href="https://github.com/pt-walk-of-fame">pt-walk-of-fame</a> pony town's Aerith Gainsborough </sub> <br>
+  <sup>dividers by "@ animatedglittergraphics-n-more" on tumblr :D</sup> <br>
+  <img src="https://pbs.twimg.com/media/HUmbFAoaIAAm3-V?format=png&name=900x900"> <br>
 </p> 
 
 <p align="center">
-<img src="https://64.media.tumblr.com/140c225d93f8031c415a6730a450fabb/a1991c2ceb59554c-ff/s2048x3072/71f24cead9fc82dd8e84c710b2ba3a865334effb.pnj">
+<img src="https://64.media.tumblr.com/227ada6839de4e57896d47c6080b8948/bd98c189bd63404f-24/s640x960/060ba19010db88d89cd17b65263124be22974c6c.gifv" width=900>
