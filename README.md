@@ -11,7 +11,6 @@
   <a href="https://pronouns.cc/@ilililpiano">
     <img src="https://pbs.twimg.com/media/HUmbAHybEAESjAX?format=png&name=900x900" width=120 alt="prns button" />
   <br>
-  <img src="https://pbs.twimg.com/media/HUmaz3RaIAAHPXr?format=png&name=900x900" width=450> <br>
   <img src="https://64.media.tumblr.com/6ee3e46fa270289e76b6be53e4aba787/09fe12a80bbf1fd7-3b/s100x200/8a4e44e9f2cbdb1926068ec1e3ce435945214ae8.pnj" width=90>
   <img src="https://64.media.tumblr.com/61dcb359252cee5fe22636112f5b1239/cb3cdd609f4b887c-11/s100x200/b7a8da0cb31bdce5672b78c43e99321827d51aad.pnj" width=90>
     <img src="https://64.media.tumblr.com/40b8dd3c17ccc3777267674ba60db2fa/cb3cdd609f4b887c-3a/s250x400/8b78cc2f1183b0332c0fbbdf2bfbd91bbc1398a3.gifv" width=90>
