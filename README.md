@@ -18,9 +18,20 @@
     <img src="https://64.media.tumblr.com/8b5b8e3f1d556882005e4b6e2f4edbbd/cb3cdd609f4b887c-5d/s250x400/c1b9f9c1a016713f703799484d0297cf58688b61.gifv" width=90>
     <img src="https://64.media.tumblr.com/c8c7c5b7caee57972cbc4e30736a516a/cb3cdd609f4b887c-88/s100x200/b10a5531a9e8184e5de8cbe2786f5b1fd0aa96c2.gifv" width=90>
     <br>
-  <sub> <a href="https://github.com/title-town">title-town</a> & <a href="https://github.com/pt-walk-of-fame">pt-walk-of-fame</a> pony town's Aerith Gainsborough </sub> <br>
-  <sup>dividers by "@ animatedglittergraphics-n-more" on tumblr :D</sup> <br>
-</p> 
+<div align="center">
+<details>
+<summary><b>Nominations</b></summary>
+  <br>
+Pony town's 𝗔𝗲𝗿𝗶𝘁𝗵 𝗚𝗮𝗶𝗻𝘀𝗯𝗼𝗿𝗼𝘂𝗴𝗵 <br>
+<a href="https://github.com/title-town">title-town</a>, <a href="https://github.com/pt-walk-of-fame">pt-walk-of-fame</a> <br>
+  <br>
+Pony town's 𝗣𝗿𝗼𝗺𝗽𝘁𝗼 𝗔𝗿𝗴𝗲𝗻𝘁𝘂𝗺 (𝗙𝗙𝗫𝗜𝗜𝗜 𝗩𝗲𝗿𝘀𝘂𝘀) <br>
+<a href="https://github.com/piddlesjet">piddlesjet</a> <br>
+  <br>
+<sub>— popup nominations text by noct aww, tysm —</sub>
+</details>
+</div>
 
 <p align="center">
+  <sup>dividers by "@ animatedglittergraphics-n-more" on tumblr :D</sup> <br>
 <img src="https://64.media.tumblr.com/227ada6839de4e57896d47c6080b8948/bd98c189bd63404f-24/s640x960/060ba19010db88d89cd17b65263124be22974c6c.gifv" width=900>
