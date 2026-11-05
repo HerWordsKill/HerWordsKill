@@ -22,11 +22,14 @@
 <details>
 <summary><b>Nominations</b></summary>
   <br>
-Pony town's 𝗔𝗲𝗿𝗶𝘁𝗵 𝗚𝗮𝗶𝗻𝘀𝗯𝗼𝗿𝗼𝘂𝗴𝗵 <br>
+Pony town's 𝗔𝗲𝗿𝗶𝘁𝗵 𝗚𝗮𝗶𝗻𝘀𝗯𝗼𝗿𝗼𝘂𝗴𝗵 (𝗙𝗙𝗩𝗜𝗜) <br>
 <a href="https://github.com/title-town">title-town</a>, <a href="https://github.com/pt-walk-of-fame">pt-walk-of-fame</a> <br>
   <br>
 Pony town's 𝗣𝗿𝗼𝗺𝗽𝘁𝗼 𝗔𝗿𝗴𝗲𝗻𝘁𝘂𝗺 (𝗙𝗙𝗫𝗜𝗜𝗜 𝗩𝗲𝗿𝘀𝘂𝘀) <br>
 <a href="https://github.com/piddlesjet">piddlesjet</a> <br>
+<br>
+Pony town's 𝗔𝗸𝗶𝗿𝗮 (𝗧𝗼𝗴𝗮𝗶𝗻𝘂 𝗻𝗼 𝗖𝗵𝗶) <br>
+<a href="https://github.com/Knox-Event">Knox-Event</a> <br>
   <br>
 <sub>— popup nominations text by noct aww, tysm —</sub>
 </details>
