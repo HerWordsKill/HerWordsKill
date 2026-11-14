@@ -29,8 +29,11 @@ Pony town's 𝗣𝗿𝗼𝗺𝗽𝘁𝗼 𝗔𝗿𝗴𝗲𝗻𝘁𝘂𝗺 (𝗙�
 <br>
 Pony town's 𝗔𝗸𝗶𝗿𝗮 (𝗧𝗼𝗴𝗮𝗶𝗻𝘂 𝗻𝗼 𝗖𝗵𝗶) <br>
 <a href="https://github.com/Knox-Event">Knox-Event</a> <br>
+<br>
+〘 other categories ! 〙 <br>
+<a href="https://github.com/bug-town">bug-town</a> – cute and kind people ♡
   <br>
-<sub>— popup nominations text by noct aww, tysm —</sub>
+<sub>— popup nominations text helped by noct aww, tysm —</sub>
 </details>
 </div>
 
